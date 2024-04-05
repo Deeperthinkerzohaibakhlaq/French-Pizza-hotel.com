@@ -1,0 +1,1 @@
+# Hotway-hotel.com
